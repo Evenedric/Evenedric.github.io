@@ -1,2 +1,1 @@
-# Evenedric.github.io
-Evenedric media
+# Evenedric media
